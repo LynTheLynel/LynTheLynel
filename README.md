@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDon't Be disrespectful towards My friends.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤDNI if you're Racist,toxic,Homophobic,Transphobic, Disrespectful towards Muslisms, ect.
+ㅤㅤㅤㅤㅤㅤㅤㅤDNI if you're Racist,toxic,Homophobic,Transphobic, Disrespectful towards Muslisms, ect. (more on strawpage/carrd)
 
 
 ![tumblr_0caae62bd0c16518f74d19dfdaab5ebe_1f9f475c_2048](https://github.com/user-attachments/assets/d4c206fc-1664-4ffa-849a-f734e5501499)
